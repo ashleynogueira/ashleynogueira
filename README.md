@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ashleynogueira
+- 👀 I’m interested in games
+- 🌱 I’m currently learning to be an gamer
+- 💞️ I’m looking to collaborate on...
+- 📫 How to reach me 
